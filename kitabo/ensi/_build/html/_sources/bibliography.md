@@ -97,7 +97,7 @@ b7f77-cb7a1
 
 **2. 🚢 Ship**  
 - *Inherited filter. Belief system. Cultural vessel.*  
-- Often beautiful. Often leaking. Still necessary.
+- Often beautiful. Often leaking. Still necessary[.](pdfs/usaid-elon.pdf)
 
 **3. 🏴‍☠️ Pirate vs. 🪛 Tinker**  
 - *Challenge vs. Repair.*  
