@@ -117,4 +117,4 @@ b7f77-cb7a1
 - Earned, not inherited.  
 - *It’s not the original truth—but it’s beautiful, and it's yours.*
 
- 
+🪡🔥🛠️🏝️🪝⚓️ 
