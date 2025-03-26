@@ -101,7 +101,7 @@ b7f77-cb7a1
 
 **3. 🏴‍☠️ Pirate vs. 🪛 Tinker**  
 - *Challenge vs. Repair.*  
-- The Pirate attacks, deconstructs, exposes rot.  
+- The Pirate attacks, deconstructs, exposes rot[.](ukubona/e-verify.md)  
 - The Tinker restores function, improvises survival, and remembers the point.  
 - **This is the moment of internal conflict or encounter with the Other.**
 
