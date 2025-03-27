@@ -107,7 +107,7 @@ b7f77-cb7a1
 
 **4. 🛟 Life Raft / ✂️ Scissors / 🦈 Shark**  
 - *The Identity Crucible.*  
-  - **🛟** = Temporary myth. You grab what floats.  
+  - **🛟** = Temporary myth. You grab what floats[.](pdfs/offer-letter.pdf)  
   - **✂️** = Optimization. Salience. You prune and reweight.  
   - **🦈** = Collapse. Salience hijacked. You’re devoured by misdirected meaning.  
 - This is the **medial brain**, negotiating body/mind/soul.  
